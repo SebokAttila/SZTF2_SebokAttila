@@ -1,0 +1,1 @@
+# SZTF2_SebokAttila
